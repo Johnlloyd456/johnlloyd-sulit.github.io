@@ -1,1 +1,0 @@
-# johnlloyd-sulit.github.io
